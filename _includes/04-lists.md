@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+love to hike 
+being outdoors is essential to life
+new to dev 
+comp sci securtiy student 
