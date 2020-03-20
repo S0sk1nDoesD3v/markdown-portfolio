@@ -1,1 +1,1 @@
-![image](https://whatculture.com/film/8-little-known-nuances-tom-hardys-performance-made-nolans-bane-awesome)
+![image](https://cdn3.whatculture.com/images/2016/12/7affbef0e2155abd-600x338.jpg)
